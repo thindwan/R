@@ -1,0 +1,1 @@
+# R- High school students and their future predictions: how does the educational and social experiences affect different paths of student’s life especially in this case we are focused on the high school performance of the student
